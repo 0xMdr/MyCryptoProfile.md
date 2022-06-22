@@ -1,0 +1,1 @@
+Linking my account 0xMdr on GitHub with my address 5EgpWLM9Y2WTwT4wfWkmWMrtK2MXcPJdEAh1pX9teem88tSG on Substrate in mycryptoprofile.io, and the challenge code is: 73ed789c745fcf955c1025f0c82f2adf. #LitentryVerifyMyAddress
